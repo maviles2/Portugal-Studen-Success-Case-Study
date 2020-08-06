@@ -1,1 +1,1 @@
-# Portugal-Studen-Success-Case-Study
+# Portugal-Student-Success-Case-Study
